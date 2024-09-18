@@ -1,3 +1,3 @@
 {
-  "THE ONE THE ONLY KING PHANTOM"
+  "ᴋɪɴɢ ɪɴ ʙʟᴀᴄᴋ ☠️"
 }
